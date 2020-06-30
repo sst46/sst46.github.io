@@ -7,3 +7,5 @@ Was fuer ein schmarren Hier so viel Woerter schreiben zu muessen was weiss ich w
 * unnoetiges
 * tippen
 * abgrundtief
+
+> Langsam wird's albern
